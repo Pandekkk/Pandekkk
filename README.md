@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pandekkk
+- 👀 I’m interested in programing and servers
+- 🌱 I’m currently learning about minecraft servers
+- 📫 How to reach me ? Mr.Panda#6820
